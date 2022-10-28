@@ -1,0 +1,1 @@
+A feijoada brasileira é feita com uma mistura de feijões pretos e carnes de boi e de porco. Costuma ser servida com couve refogada, pedaços de laranja e farofa. A feijoada costuma ser considerada o símbolo da culinária brasileira, por fundir características gastronômicas europeias e africanas.
